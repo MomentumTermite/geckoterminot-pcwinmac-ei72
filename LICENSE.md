@@ -1,4 +1,4 @@
-# 
+# Updated geckoterminal sniper bot plugins for Mac OS | Turbo geckoterminal sniper bot plugins for PC Windows. Featuring multi-chain support and mev extraction — optimized for maximum performance on every platform.
 
 
 
